@@ -1,0 +1,2 @@
+# yazilim_muhendisligi_oryantasyon_vize_odevi
+Yazılım Mühend

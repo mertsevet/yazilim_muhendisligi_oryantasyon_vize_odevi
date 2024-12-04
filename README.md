@@ -1,2 +1,2 @@
 # yazilim_muhendisligi_oryantasyon_vize_odevi
-Yazılım Mühend
+https://www.youtube.com/watch?v=Ct9koJ1jqMM
